@@ -10,6 +10,11 @@
 
 * Love Playing Tennis, Learning Trading, Playing Guitar, and Making Food
 
+If you are a prospective employer with a Finance/Quant/Algo Internships let connect.
+
+[Linkedin](https://www.linkedin.com/in/kevin-chen-2bb998250/) |
+[Email](kevinchen4880@gmail.com)
+
 <!--
 **kevin-sean-chenn/kevin-sean-chenn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
