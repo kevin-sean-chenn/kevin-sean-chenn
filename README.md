@@ -1,4 +1,14 @@
-### Hi there 👋
+### Key I'm Kevin
+
+* First Year Undegrad Business @ Questrom
+
+* Business Administration w/ Concentration in Investment Finance
+
+* Interested in Algo Trading/Quant Finance
+
+* Semi Proficient in Python and Excel
+
+* Love Playing Tennis, Learning Trading, Playing Guitar, and Making Food
 
 <!--
 **kevin-sean-chenn/kevin-sean-chenn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
