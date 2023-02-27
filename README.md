@@ -1,4 +1,4 @@
-### Key I'm Kevin
+### Hey I'm Kevin
 
 * First Year Undegrad Business @ Questrom
 
