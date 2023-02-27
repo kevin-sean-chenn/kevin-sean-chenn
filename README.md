@@ -8,7 +8,7 @@
 
 * Semi Proficient in Python and Excel
 
-* Love Playing Tennis, Learning Trading, Playing Guitar, and Making Food
+* Love Tennis, Guitar, Video Games, and Food
 
 If you are a prospective employer with a Finance/Quant/Algo Internships let connect.
 
