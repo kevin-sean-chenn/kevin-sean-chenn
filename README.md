@@ -10,7 +10,7 @@
 
 * Love Tennis, Guitar, Video Games, and Food
 
-If you are a prospective employer with a Finance/Quant/Algo Internships let connect.
+If you are a prospective employer with a Finance/Quant/Algo Internships let's connect.
 
 [Linkedin](https://www.linkedin.com/in/kevin-chen-2bb998250/) |
 [Email](kevinchen4880@gmail.com)
