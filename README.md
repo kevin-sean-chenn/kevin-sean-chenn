@@ -4,9 +4,9 @@
 
 * Business Administration w/ Concentration in Investment Finance
 
-* Interested in Algo Trading/Quant Finance
+* Interested in Fintech and Coding
 
-* Semi Proficient in Python and Excel
+* Semi Proficient in Python, SQL, and Excel
 
 * Love Tennis, Guitar, Video Games, and Food
 
